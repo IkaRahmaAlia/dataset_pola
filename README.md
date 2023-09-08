@@ -1,1 +1,1 @@
-# dataset_pola jangan di ambil, buat tuugas pola nanti sama hehehehe trimss <3
+# ini dataset pola siska dan ika hehehehe trimss <3
